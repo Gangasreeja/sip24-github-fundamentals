@@ -9,4 +9,4 @@ Hi, I am sreeja and im hardworking in nature as well as smartwork required to en
 
 ## Social Media
 - [GitHub](https://github.com/gangasreeja)
-- [LinkedIn](https://linkedin.com/in/ramireddy-sreeja-9b2334311)
+- [LinkedIn](https://linkedin.com/in/ramireddysreeja-9b2334311)
